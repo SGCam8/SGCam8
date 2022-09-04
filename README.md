@@ -8,9 +8,7 @@ What I work on:
 -Probably something else at some point
 ____________________________________________________________
 
-Check out the org I'm a part of, Objective Driveyards!
-
-We play Starbase and Dual Universe.
+I play Starbase and Dual Universe.
 
 https://discord.gg/yfUtV5NdpX
 ____________________________________________________________
